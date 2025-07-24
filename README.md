@@ -31,6 +31,6 @@
 
   ---
 
-  📫 Let’s connect → [LinkedIn](www.linkedin.com/in/anjali-776524312)
+  📫 Let’s connect → [LinkedIn](https://www.linkedin.com/in/anjali-776524312/)
 
 _“Build with purpose. Predict with clarity. Design with soul.”_
